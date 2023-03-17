@@ -1,1 +1,1 @@
-[termin.lol](terming.lol)
+[termin.lol](https://termin.lol)
